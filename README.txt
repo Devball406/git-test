@@ -1,1 +1,1 @@
-for git basic learning
+forget base delivery lesson
